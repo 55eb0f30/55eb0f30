@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @wtchdg28
+- 👀 I’m interested in Cyber-Security, programming, gaming, anime
+- 🌱 I’m currently learning Python, Cyber-Security
+- 😄 Pronouns: any
